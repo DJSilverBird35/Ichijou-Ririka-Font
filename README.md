@@ -1,0 +1,2 @@
+# Ichijou-Ririka-Font
+Ririka
